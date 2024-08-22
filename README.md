@@ -1,4 +1,4 @@
--  Hi, I’m @Arnav-the-master-coder: 😏
+-  Hi, I’m @Arnav-the-master-coder: 😉
 -  I’m interested in: CODING!!
 -  I’m currently learning: Python,DSA,Web Dev.
 -  I’m looking to collaborate on: Anywhere you like.
